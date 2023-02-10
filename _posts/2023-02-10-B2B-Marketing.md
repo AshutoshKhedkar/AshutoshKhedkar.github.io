@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ## The Importance of B2B Marketing in Today's Business Landscape
 
