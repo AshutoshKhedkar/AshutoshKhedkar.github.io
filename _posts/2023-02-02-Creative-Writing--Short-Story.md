@@ -2,6 +2,7 @@
 published: true
 ---
 ## Not Good Enough
+
 ![NotGoodEnough](/images/NotGoodEnough.jpg)
 
 Mamool woke up in a warehouse, which was long and narrow and stretched so far in the distance that he could not see the other end but could see the metal sides on either side. The farther end was shrouded in darkness, and the floor up to the darkness was lit by lights arranged in lines of three along the ceiling that flickered constantly and buzzed with a low humming sound. As he was trying to figure out how he reached there, the lights from the farther end of the warehouse started to switch off in batches of three and the darkness was creeping towards him till it stopped with just the three lights above him still switched on. Those lights turned off too and he was thrown into complete darkness. His heart began racing as the fear of what unknown entity was lying in wake for him in the darkness started creeping upon him, just as the darkness had creeped up on him. But to his relief the set of three lights ahead of him turned on and he could see the warehouse floor in the small pool of light and he automatically started walking towards it. ‘Walk towards the light’ he had heard people say all his life and he did just that; it was as if the lights were coaxing him to do their bidding. 
